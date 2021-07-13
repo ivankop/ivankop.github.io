@@ -1,1 +1,0 @@
-# ivankop.github.io
